@@ -1,1 +1,2 @@
 #edited READ ME!
+**I THINK I AM LEARNING NEW SKILLS**
